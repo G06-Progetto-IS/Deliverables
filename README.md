@@ -1,1 +1,1 @@
-In questa repository verranno caricati i Derivables
+In questa repository verranno caricati i Deliverables
